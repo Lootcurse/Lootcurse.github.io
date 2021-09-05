@@ -1,0 +1,1 @@
+# Lootcurse.github.io
